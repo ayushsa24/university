@@ -1,1 +1,1 @@
-# universty
+# university
